@@ -1,4 +1,4 @@
-## Hi there 👋
+## AYY YOO, WASSUP G?!! 👋
 
 <!--
 **dohangusto/dohangusto** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
