@@ -1,4 +1,4 @@
-## AYY YOO, WASSUP G?!! 👋
+## AYY YOO, WASSUP?!! 👋
 
 Yo, what’s good, everyone?😁 I’m Dohan, and I’m a software developer. My main focus is on backend development, where I get to make all the behind-the-scenes stuff run smoothly. But hey🫵😬, I’m not just a backend wizard tho🙂‍↔️ I can totally flex my skills on front-end and mobile too!🙂‍↕️ If you need help with front-end or mobile, I’m ready to roll! Got you dawg! Let’s vibe together and create something dope! 🔥🔥🔥
 
